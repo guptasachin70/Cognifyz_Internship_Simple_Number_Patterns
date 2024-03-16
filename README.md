@@ -1,0 +1,1 @@
+# Cognifyz_Internship_Simple_Number_Patterns
